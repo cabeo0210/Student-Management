@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **cabeo0210@gmail.com**
 
-- ⚡ Fun fact **So I always improve my self every time**
+- ⚡ Fun fact **I am just a fat fish**
 
 
 <h3 align="left">Languages and Tools:</h3>
